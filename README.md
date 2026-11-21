@@ -310,7 +310,7 @@ Ho completato il corso **BUS101: Introduction to Business** di Saylor University
 
 🇮🇹 Italiano: madrelingua
 
-🇬🇧 Inglese: **C1** – EF SET 67/100 (novembre 2026)
+🇬🇧 Inglese: **B2** – EF SET 60/100 (novembre 2026)
 
 ---
 
